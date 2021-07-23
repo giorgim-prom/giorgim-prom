@@ -1,0 +1,3 @@
+- Proactive thinker
+- Proficient innovator
+- Proud soul
